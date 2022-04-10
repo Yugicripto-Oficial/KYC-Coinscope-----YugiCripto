@@ -1,1 +1,0 @@
-# KYC-Coinscope-----YugiCripto
